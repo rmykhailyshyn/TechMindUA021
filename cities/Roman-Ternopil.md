@@ -1,0 +1,1 @@
+Fayne misto Ternopil
